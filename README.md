@@ -4,7 +4,7 @@
   
 ![ac](https://files.catbox.moe/v7c0d2.png)
 
-<p align="center">sona   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  asper   𓂃       ੭୧        𓂃 she , her
+<p align="center">asper   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  nufuli   𓂃       ੭୧        𓂃 she , her
 
   ![ac](https://files.catbox.moe/wy8v8x.png)
 
