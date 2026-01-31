@@ -10,4 +10,3 @@
 
 <p align="center"> ˊ  ˋ　15 y.o ◞  ◟ omni
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31xhjvt4vgal3pm2lykb5pacqqme&cover_image=false&theme=default&show_offline=false&background_color=ffffff&interchange=false&bar_color=cc6697)](https://github.com/kittinan/spotify-github-profile)
