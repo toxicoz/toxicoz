@@ -7,5 +7,5 @@
 <p align="center">asper   𓈈⠀⠀ 𝅄  ⠀᧔◍᧓  nufuli   𓂃       ੭୧        𓂃 she , her
 
 
-<p align="center"> ˊ  ˋ　15 y.o ◞  ◟ omni
+<p align="center"> ˊ  ˋ　minor ◞  ◟ omni
 
