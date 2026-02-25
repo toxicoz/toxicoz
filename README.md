@@ -4,7 +4,7 @@
   
 
 
-<p align="center">asp   𓈈⠀ ou⠀ 𝅄  ⠀᧔◍᧓  dol9hin   𓂃       ੭୧        𓂃 she , her
+<p align="center">asp   𓈈⠀ ou⠀ 𝅄  ⠀᧔◍᧓  SOLTA   𓂃       ੭୧        𓂃 she , her
 
 
 <p align="center"> ˊ  ˋ　minor ◞  ◟ omni
