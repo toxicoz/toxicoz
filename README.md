@@ -4,7 +4,7 @@
   
 
 
-<p align="center">asp   𓈈⠀ ou⠀ 𝅄  ⠀᧔◍᧓  SOLTA   𓂃       ੭୧        𓂃 none
+<p align="center">toxic   𓈈⠀ ou⠀ 𝅄  ⠀᧔◍᧓  SOLTA   𓂃       ੭୧        𓂃 none
 
 
 <p align="center"> ˊ  ˋ　minor ◞  ◟ omni
